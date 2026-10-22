@@ -1,4 +1,4 @@
-# yuzecv.github.io
+# yuzeandy.github.io
 -热爱长跑，马拉松runner；  
 -喜欢旅行、人文摄影，着迷于建筑、历史与不同地域的文化；   
 -普通话、粤语流利，英/西/葡不断学习；  
